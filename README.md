@@ -1,2 +1,0 @@
-# mayuiwakami.github.io
-iLiLiP
